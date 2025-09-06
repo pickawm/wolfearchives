@@ -8,6 +8,7 @@ credits: true
 
 Boguechitto, Miss
 May 19th, 1969.
+
 Dear Karl: -
 
 Please excuse this note book paper. I have real stationary but have so much to say to you chose this instead.
