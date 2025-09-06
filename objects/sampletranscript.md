@@ -1,11 +1,3 @@
----
-title: Sample Transcript
-layout: about
-permalink: /sampletranscript.html
-# include CollectionBuilder info at bottom
-credits: true
----
-
 Boguechitto, Miss
 May 19th, 1969.
 
