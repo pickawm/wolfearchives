@@ -1,4 +1,12 @@
+---
+title: wolfe001
+layout: about
+# include CollectionBuilder info at bottom
+credits: true
+---
+
 Boguechitto, Miss
+
 May 19th, 1969.
 
 Dear Karl: -
