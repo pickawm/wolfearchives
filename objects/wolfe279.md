@@ -1,0 +1,12 @@
+---
+title: wolfe279
+layout: about
+# include CollectionBuilder info at bottom
+credits: true
+---
+Dear Bubber
+                  Nothing much has happened this week and I am afraid you will find this letter dull and dry .
+                  C              xxx has been here since Sunday and she has got-ten so much pleasure out of your letters. We have saved each one for her to read. She is rather a peculiar person, and it’s so unfortunate that she is so very hard of hearing She seems to grasp completely only the xxxx things she reads She has asked Mama and I the same things over and over again and they are the same things that she xxxx had asked on her previous visits. She has had her teeth fixed, and they are very becom-ing to her. The saddest thing to her is the fact that’she will never be able to eat corn on the cob again.’ She says she is just like a man with a wood leg . There are lots of things the man can do and get along so much better with it than without it, but he will never be able to dance again.
+                  We aree looking for K                  Monday or Tuesday. She still has hopes of getting a job as matron somewhere. Has a letter from her yesterday saying that Mrs Fulgum was trying to get her a position, had two places in mind, had spoken to the par-tiesin charge and they are waiting for a personal interview. You already know that ske cannot do xxxxxxx one thing. She is willing but she really cannotdo it and of course she sits idle and thinks and that makes her sad. She is much better than I thought she would be, but you know she is a strong wo-man and looks at things differently than lots of people.
+                  Last week the thermometerregistered the highest in C for the state and that was 113/ It was almost unbearable. Mama coul not get in the yard much until late in the afternoon and she just managed to save her shrubbery by constant watering. Imag-ine what it would mean to lose all of it after she has worked so hard with it. The city lost a great deal of theirs, but they could hardly water it as they had to pass an ordinance prohibiting the waste of water on account of so many hoses run-ning and the low pressure.
+                  The miniature golf course is not at all popular, which is rather surprising. I guess all the young people are like H       and W  . Sit on their tales xxxx all day and wish for something to do or some where to go and never do a thing about it.          H hstill has hopes of getting a job with the high way department, but nothing definite as yet has happened.
